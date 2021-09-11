@@ -1,12 +1,1 @@
-we
-s
-as
-a
-asa
-a
-asa
-ads
-das
-dsa
-sxds
-z
+zx
